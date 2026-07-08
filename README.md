@@ -79,7 +79,7 @@ I'm interested in collaborating on:
 ## 📫 Contact Me
 
 - **Email:** [hamaadzafar7@gmail.com](mailto:hamaadzafar7@gmail.com)
-- **LinkedIn:** Add your LinkedIn profile link here
+- **LinkedIn:** LinkedIn.com/in/hamaad-zafar
 - **Location:** Islamabad, Pakistan
 
 ---
